@@ -1,2 +1,5 @@
 # hello-world
-Repositorio para iniciarme
+
+Hola gente!
+
+Voy a convertirme en científico de datos y experto en Big Data.
