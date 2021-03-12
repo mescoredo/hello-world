@@ -2,4 +2,4 @@
 
 Hola gente!
 
-Voy a convertirme en científico de datos y experto en Big Data.
+Voy a convertirme en Científico de Datos y experto en Big Data.
