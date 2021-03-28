@@ -8,4 +8,4 @@ Para ello tengo un duro Máster por delante (al menos 11 meses)
 
 Y antes de terminar tendré que hacer un Proyecto Fin de Máster.
 
-VA A IRME BIEN!!!
+VA A IRME BIEN!!! (siempre que trabaje mucho)
